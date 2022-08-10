@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Natalia Nunes Souza
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ...  
 - 🌱 I’m currently 
 - 📫 How to reach me ... natalia.nunesouza@yahoo.com.br
 
